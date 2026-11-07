@@ -1,3 +1,6 @@
 ![](https://c.tenor.com/XXbAYgoK-5EAAAAC/tenor.gif) i loveveveveee ivandrewwww awww its my biggest comfort ship
 
-hi date me ok lease idgaf if ur clingy or shit just date me or send me death threats so I have an actual reason to kill myself
+hi date me ok lease idgaf if ur clingy or shit just date me or send me hate or tell me to kms so I have an actual reason to kill myself
+
+
+I'm 17 neptunic and genderfae. km cupioromantic so I can't feel romantic feelings. I already knwo I should stop pursuing love because nobody is gonna love me and even if they do they enevwr gonna confess to me because who in their right mind is gonna confess to someone who can't feel romantic feelings. omfg I don't care just date me already I don't care if you only date for the title/status just fucking date me I don't care 
